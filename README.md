@@ -1,3 +1,3 @@
-# entelechia27.github.io
+# Moja strona
 
-Hej!
+To moja słodka stronka, na której będę wrzucała swoje notateczki psychologoii
